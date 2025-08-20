@@ -1,5 +1,5 @@
-[Click Here To Buy-
-(https://doglovertees.store/colorsofhappiness?rt=storefront&rn=DogLoverTees&s=ext-toaddit-66&c=white&p=FRONT)]
+Click Here To Buy-
+(https://doglovertees.store/colorsofhappiness?rt=storefront&rn=DogLoverTees&s=ext-toaddit-66&c=white&p=FRONT)
 
 Step up your style game with our Premium Printed T-Shirt – designed for comfort, durability, and making a statement. Made from 100% soft cotton, this tee feels light, breathable, and perfect for all-day wear. The high-quality print ensures your design stays vibrant wash after wash without fading or cracking.
 
